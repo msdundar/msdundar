@@ -1,1 +1,1 @@
-Software engineer. Keeping things boring and simple. Fighting against tribal knowledge, over-engineering and guerrilla coding since 2011.
+Software engineer. Keeping things boring and simple. Fighting against tribal knowledge, over-engineering and cowboy coding since 2010.
